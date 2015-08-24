@@ -7,11 +7,9 @@
 
 [برای توضیحات تکمیلی پست وبلاگم رو ببینید.](http://erfanmehraban.ir/2015/08/%D8%A7%D9%88%D9%84%DB%8C%D9%86-%DA%86%D8%B3%D8%A8%D8%A7%D9%86%DA%A9-%D9%85%D8%AA%D9%86-%D8%A8%D8%A7%D8%B2/)
 
-اسم این پسرک هم عرفانه!!!
-
 برای ارتباط با من [ایمیل بزنید](mailto:erfan.mehraban@gmail.com) و تجربه های خودتونو با #عرفان_مهربان به اشتراک بزارید.
 
 ممنون که از کارم حمایت میکنید. یا علی!
 
 **eng:**
-[this is persian Telgram app and ????](http://erfanmehraban.ir/2015/08/%D8%A7%D9%88%D9%84%DB%8C%D9%86-%DA%86%D8%B3%D8%A8%D8%A7%D9%86%DA%A9-%D9%85%D8%AA%D9%86-%D8%A8%D8%A7%D8%B2/)
+[this is persian Telgram sticker pack and ????](http://erfanmehraban.ir/2015/08/%D8%A7%D9%88%D9%84%DB%8C%D9%86-%DA%86%D8%B3%D8%A8%D8%A7%D9%86%DA%A9-%D9%85%D8%AA%D9%86-%D8%A8%D8%A7%D8%B2/)
